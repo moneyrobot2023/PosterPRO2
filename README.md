@@ -10,6 +10,10 @@
 
 ![](https://github.com/moneyrobot2023/PosterPRO2/blob/main/постер.jpg?raw=true)
 
+[видео обзор] (https://youtu.be/bFnAejfovT4)
+#
+[купить poster pro 3.5.1.0 ] (https://DobroFile.ru/?s=d85996cc6)
+
 
 Полный список функций
 #
